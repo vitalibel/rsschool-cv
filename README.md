@@ -1,1 +1,1 @@
-# rsschool-cv
+https://vitalibel.github.io/rsschool-cv/cv
